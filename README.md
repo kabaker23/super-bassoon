@@ -1,4 +1,3 @@
-Hello
+whats up professor choi
 
-My name is Khalid Abaker. I’m originally from North Sudan, i speak 3 languages
-outside of school, i love playing soccer with friends
+One interesting thing about me is that I spent part of my childhood in Sudan and part in Egypt before moving to Las Vegas Nevada. Living in different countries gave me the opportunity to experience different cultures and perspectives and also learning 2 more languages outside of my main language.
